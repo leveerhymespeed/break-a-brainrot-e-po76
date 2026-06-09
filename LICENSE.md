@@ -1,4 +1,4 @@
-
+hidden break a brainrot egg Script is the best break a brainrot egg Script, featuring esp and no cooldown. Safe and powerful for all your needs.
 
 
 
